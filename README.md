@@ -48,7 +48,7 @@ Chinese
 -------
 
 * Yum Yum Hunan (get the Veggie Potstickers, General Tso Meatless Chicken, and Szechuan String Bean. Order outside of this selection at your own peril)
-* Golden Era (excellent selection of seitan fake meat dishes)
+* Golden Era (excellent selection of seitan fake meat dishes. must make obeisance to Supreme Master)
 * Big Lantern (Good selection of seiten fake meat)
 * Jasmine Tea House (veggie meats)
 
@@ -56,6 +56,7 @@ Indian(ish)
 -----------
 
 * Pakwan (amazing Paneer Tika Masala, and many other veggie dishes)
+* Mehfil (excellent malai kofta, naan, and samosas; the other dishes good as well)
 * Udupi Palace (all vegetarian south indian)
 * Kasa (indian food wraps. sounds weird; tastes good!; several locations)
 * Vik's Chaat (all veg south indian. amazing and authentic. check hours.)
@@ -132,7 +133,6 @@ Bars
 
 Wine and Tea Bars
 -----------------
-
 * Samovar (enjoy an exotic kettle of tea made by professions. grab a snack too)
 
 Ice Cream!
@@ -142,3 +142,9 @@ Ice Cream!
 * Maggie Mudd's (best vegan ice cream pretty much ever)
 * Mitchell's (ice cream the way you remember it from your childhood. tons of flavors)
 * Xanath Ice Cream (from the people who brought you the yellow gate that never opens, but smells of saffron and vanilla)
+
+
+Grocery Stores
+--------------
+* Rainbow Grocery (all vegetarian grocery store. High quality, expensive produce)
+* Duc Loi Supermarket (wide variety of seitanic goods)
